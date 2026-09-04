@@ -1,0 +1,1 @@
+# Prvé úlohy na preriesenie
